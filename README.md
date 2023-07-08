@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @1livermore
-- 👀 I’m interested in crypto
+- 👀 I’m interested in english
 - 🌱 I’m currently learning be a trader
 - 📫 How to reach me ...
 
